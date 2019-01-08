@@ -1,7 +1,7 @@
 # LEMON POPPYSEED CAKE
 *Lemon Poppy Seed Cake | by Carrie Sellman for TheCakeBlog.com*
 
-A tender layer cake recipe brightened with lemon juice, lemon zest and poppy seeds, frosted with a tangy sweet lemon cream cheese frosting.
+A tender layer cake recipe brightened with lemon juice, lemon zest and poppy seeds, frosted with a tangy sweet lemon cream cheese frosting. And lots of delicious raw ground round for aesthetics and atmosphere.
 
 Author: Carrie Sellman 
 Yield: One 8" Round Cake (3 layers) Category: ✽ ✽ ✽
